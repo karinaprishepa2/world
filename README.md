@@ -1,1 +1,1 @@
-exchange equally explain faster treated buried guess central home couple railroad tired scared heard chapter
+gave left introduced ocean troops tales partly shore sunlight load difficulty ship easy sport ground
