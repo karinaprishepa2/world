@@ -1,1 +1,1 @@
-worker toy yes way classroom store area shout popular right announced slope thirty somewhere stuck
+barn famous proud stranger nature forgotten partly first joined pour chief pain surface clay bus
