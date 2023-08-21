@@ -1,1 +1,1 @@
-policeman take doubt outside attack carbon service record till opportunity practice cheese climate read while
+letter burn curve moment cow plant ranch question rising else positive during audience certainly outer
