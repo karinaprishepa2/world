@@ -1,1 +1,1 @@
-itself object act lose fort prevent wealth satisfied blew weak married outline settlers discovery rich
+moving escape alphabet gun zulu rhyme scared wore establish theory broken spirit effect greatest pressure
