@@ -1,1 +1,1 @@
-advice smell light tobacco bottle lamp grow student palace itself shallow should cover tape mad
+wealth shot face asleep angle court telephone machine bigger tube great lion foreign favorite draw
