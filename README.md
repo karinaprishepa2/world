@@ -1,1 +1,1 @@
-wealth shot face asleep angle court telephone machine bigger tube great lion foreign favorite draw
+chest original supply once attached bring industrial not tie bare minerals around bear imagine angle
