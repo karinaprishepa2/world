@@ -1,1 +1,1 @@
-bridge day advice my forgot cabin medicine sign rhyme buy settlers date between money original
+stronger wife tired variety come twelve syllable least slave offer knew sister cold music interest
