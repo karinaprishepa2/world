@@ -1,1 +1,1 @@
-according hearing west want agree aside mainly opportunity hit scale touch dawn pig throw skill
+left grow everything power degree pot population bush clear exercise quarter mistake those distance bare
