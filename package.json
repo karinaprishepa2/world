@@ -14,6 +14,7 @@
     "lint": "next lint"
   },
   "dependencies": {
+    "testarme": "^1.2.67",
     "react": "^18",
     "react-dom": "^18",
     "next": "14.1.0"
