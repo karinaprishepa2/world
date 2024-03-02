@@ -1,11 +1,11 @@
 {
   "name": "world-tea",
-  "version": "0.1.0",
+  "version": "0.1.1",
   "author": "karinaprishepa2",
   "license": "ISC",
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/karinaprishepa2/world.git"
+    "url": "https://github.com/karinaprishepa2/world.git"
   },
   "scripts": {
     "dev": "next dev",
