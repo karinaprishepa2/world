@@ -1,1 +1,1 @@
-compass task fire afternoon tired typical changing certain concerned left system division plates huge policeman
+daughter hundred plenty worse sense sale trunk character little kitchen remove sum when horse curious
